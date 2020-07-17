@@ -1,6 +1,6 @@
 # hello-world
 :) 
 
-Hi everyone!!
+Hi everyone!
 
-I love eating fries and read mangas! My favorite manga is Haikyuu!
+I love eating fries and reading mangas. My favorite manga is Haikyuu.
