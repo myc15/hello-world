@@ -3,4 +3,4 @@
 
 Hi everyone!
 
-I love eating fries and reading mangas. My favorite manga is Haikyuu.
+I enjoy painting, dancing and reading mangas.
